@@ -3,5 +3,4 @@ I Reverse Engineered, Modified, Decompiled, De - Obfuscated, Dumped, Unarchived,
 
 That Was Ez!
 
-Cope Harder 0x22 
- # IF YOU DMCA US YOU ARE VIRGIN + YOU ARE ADOPTED + YOU ARE NO NAMER + YOU ARE PEDO + YOU GROOM LITTLE KIDS + YOU HATE LGBTQ+ AND BLM
+Cope Harder 0x22
